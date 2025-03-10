@@ -1,0 +1,1 @@
+# compety-hackathon
